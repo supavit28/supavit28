@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning to be rich like Elon Musk.
 - 📫 How to reach me
 
-  __Email:__ supavit28@hotmail.com, znipz.j@gmail.com, supavit.j@gmail.com
+  __Email:__ supavit.j@gmail.com
